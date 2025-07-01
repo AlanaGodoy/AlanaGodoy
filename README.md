@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a student looking to better her skills.
+I'm a student looking to better my skills.
 
 
 ## 🌐 Socials:
